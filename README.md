@@ -2,6 +2,3 @@
 # asdasdasd
 
 
-
-#owijeoriawjeo ij;adlskjriwaeo raijjkfhlaiuwh3reoirjsgldk jnainauewhrpoesijflkjgiwpfafu uaeo
-
